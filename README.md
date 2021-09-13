@@ -4,6 +4,8 @@
 - 💞️ I’m looking to collaborate on creating DuberChat, meaning I'll pay you my negative tips and you make DuberChat
 - 📫 How to reach me [dubermcdonald@protonmail.com](mailto:dubermcdonald@protonmail.com)
 
+
+# Hey if you came here for a flag it's gone now! You'll never find it unless you had a time machine to find the way back >:)
 <!---
 dubermcdonald/dubermcdonald is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
